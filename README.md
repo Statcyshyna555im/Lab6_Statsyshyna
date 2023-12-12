@@ -10,6 +10,7 @@
 ![image](https://github.com/Statcyshyna555im/Lab6_Statsyshyna/assets/145069084/64893ddd-0ee0-4780-93db-fa96e758cc45)
 
 ![image](https://github.com/Statcyshyna555im/Lab6_Statsyshyna/assets/145069084/d4b1c4e8-21f3-422d-a782-b92c65718a27)
+![image](https://github.com/Statcyshyna555im/Lab6_Statsyshyna/assets/145069084/4fe41104-7ff3-4077-90b1-03d611dc107c)
 
 ![image](https://github.com/Statcyshyna555im/Lab6_Statsyshyna/assets/145069084/a3f13a54-2a7b-4b24-bee0-8c0e8cb0504b)
 ![image](https://github.com/Statcyshyna555im/Lab6_Statsyshyna/assets/145069084/3c10acf5-95a9-4364-9068-a855c52d6015)
