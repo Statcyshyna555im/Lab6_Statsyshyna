@@ -8,3 +8,5 @@
 ![image](https://github.com/Statcyshyna555im/Lab6_Statsyshyna/assets/145069084/cbb308c4-6d7d-4bb4-bc0c-1728b3e1bb3a)
 
 ![image](https://github.com/Statcyshyna555im/Lab6_Statsyshyna/assets/145069084/64893ddd-0ee0-4780-93db-fa96e758cc45)
+
+![image](https://github.com/Statcyshyna555im/Lab6_Statsyshyna/assets/145069084/d4b1c4e8-21f3-422d-a782-b92c65718a27)
